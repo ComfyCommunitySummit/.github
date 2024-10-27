@@ -39,7 +39,13 @@ Github：https://github.com/ComfyCommunitySummit
 
 公众号：ComfyCommunitySummit
 
+官方群（飞书）：https://applink.feishu.cn/client/chat/chatter/add_by_link?link_token=193pc339-704e-404c-b013-c83432d37b1f
+
+
 ![微信图片_20241028031240](https://github.com/user-attachments/assets/e1877f70-6188-4d78-87e1-35821109ec50)
+
+
+![飞书20241028-031958](https://github.com/user-attachments/assets/aee1c47a-1526-44a3-aabc-0bf6ef842712)
 
 
 
